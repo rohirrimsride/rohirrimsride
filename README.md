@@ -6,4 +6,6 @@
 - ⚡ Fun quote: "Little by little, one travels far." - J.R.R. Tolkien 
 
 ## Connect
-![<img src="https://user-images.githubusercontent.com/96882225/230231040-16a3c03a-6017-410a-a1cf-b3d6494aa263.png)https://www.linkedin.com/in/dave-barnes-b017b945/">](https://www.linkedin.com/in/dave-barnes-b017b945/)
+![<img src="(https://user-images.githubusercontent.com/96882225/230234026-1eab2195-0024-4839-a264-95a8961edc71.png)"/>](https://www.linkedin.com/in/dave-barnes-b017b945/)
+
+![linkedin34](https://user-images.githubusercontent.com/96882225/230234026-1eab2195-0024-4839-a264-95a8961edc71.png)
